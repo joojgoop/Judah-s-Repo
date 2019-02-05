@@ -42,4 +42,6 @@
   than what I or a lot of people are used to. I got to learn about my cohort and found that I am surrounded by likeminded individuals
   and that is a comforting feeling. I also am so happy that I have found a program that thinks about how creative people think and 
   tailors the teaching and class style as such. Am intrigued and excited to see all the stuff we are gonna be learning about. 
+# Visuals Speak
+  My first photo for this activity depicts a large jar with lots of paintbrushes and different tools an artist would use while working. I    felt this photo related to my current career status in the way that I am the Jar and am constantly adding knew tools, experience, and knowledge of them to my collection. My second photo depicts a wealthy individual with money falling from his pockets and other hands reaching for it, symbolizing to me the success and wealth I am going to acquire with my tools. The way that I am going to bridge the gap between these two photos is by actively adding to my collection of skills and tools while learning and applying them in a business environment and mindset.
     
